@@ -1,5 +1,5 @@
 Hi. Im Shaun Fourie
-I am an independant and developing Software Tester in the midts of qualifying in the ISTQB.
+I am an independant and developing Software Tester and Project manager.
 
 I am always eager to learn skills and responsibilities, so bring it on!
 
